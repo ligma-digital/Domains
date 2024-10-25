@@ -8,7 +8,9 @@ Ligma digital is the main operation
 
 [Ligma.Digital validate your business idea](https://ligma.digital/validation)
 
+[TtrpgList.com](https://ttrpglist.com)
 
+[Find your next ttrpg](https://ttrpglist.com/games)
 
 Half orc club is a secondary project
 
